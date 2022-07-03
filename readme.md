@@ -1,7 +1,4 @@
-<<<<<<< HEAD
-Fabrizio Grela
-Santiago Crescimbeni :grin:
-=======
+
 Fabrizio Grela :smiley:
 
 
